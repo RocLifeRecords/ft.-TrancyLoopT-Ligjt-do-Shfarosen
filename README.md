@@ -1,30 +1,37 @@
 # Root84-TrancyLoop.mmpz-ft.DenyD---T-Ligjt-do-Shfarosen-
-Ti e do Drejtësinë is a double album by Albanian pop/rap singer DenyD released 2017.
+"T' Ligjt Do Shfarosen" is the second song from the album 'Ti e Do Drejtësinë'.
+ 
+In the introduction of the song, I enter with integrity and justice for protection.
 
-Recorded during 2016-2017 in Tirana, Ti e do Drejtësinë was aimed to be an pop/rap album. It features are many Ambient music samples.
+Then I turn to the hostility that supports me because of my integrity because I hope.
 
-Background and promotion
+I continue in verses with the hope of becoming and following the steadfast paths, to be exalted, and to inherit righteousness.
+Then I turn to the listeners to see the retribution of the wicked.
 
-I stuck to an original idea to make an pop/rap album, even in my conscious that some tracks don't sound like a proper rap at first listen. The best example is the song "Pop-Rap Garanci", which does not sound like rap when you listen to it the first time. But if you forget all, the bass lines are just really basic rap shape. As a dance music, is not an idea of a good times, but as electronic-pop, so much fool as kinetic.
+I slowly refer to God because it is the hope that fills us with joy and peace, through faith, that we may abound in hope with the power of courage like eagles!
 
-Twelve songs was released as the Vol I (CD1), before the entire album Vol II (CD2) release. "Ti e do Drejtësinë Vol I" was the first unit of the rapper in 2016 and featured "Ti e do Drejtësinë Vol I & II", was the primary medium album in 2017.
+The Elder loves justice. We cannot fully discover the Almighty. He does not despise righteous judgment the righteousness that abounds.
 
-The double album "Ti e do Drejtësinë Vol I & II" in long-term is to support the justice system in Albania, from various experts, assistant's, translators etc. Specifically, to refer the concept of the religion and politics in justice where some Jews, Muslims and Christians believe that the justice is the present, real, right and a command divine derived from God. The Psalmist describes God as having "Righteousness and justice [as] the foundation of his throne;....." (Psalms 89:14)
+I continue to show the righteousness of righteous deeds. Only the righteous see the right and the justice being confessed fully of songs.
 
-Track listing
+But he that is held the greatest let him be held the greatest, for he has deep criticism and knowledge, I place myself, Deny D, to show kindness, for wonderful deeds and wipe out transgressions with my songs. Because I enjoy these things, like the Elder without abandoning his faithful ones.
 
-All tracks written by DenyD.
 
-CD1                                                                  Length                            
-1.    Kundër Teje (ft. SV)                                      3:12
-2.    T'Ligjt do Shfarosen (ft. TrancyLoop)                 3:15 
-3.    Ti e do Drejtësinë (ft. CapDan)                         4:14
-4.    Më Mirë Pak (ft. Saber)                                    3:09   
-5.    Ekspertët Zbatojnë (ft. CoverMix)                     3:24
-6.    Pop - Rap Garanci (ft. Skiessi)                          2:55
-7.    T'Gjithë Ata (ft. Impulsologik)                          4:46
-8.    Skeptër (ft. Strict Production)                           3:42
-9.    Qiej të Rinj e Tokë të Re (ft. Shovon)                3:04
-10.  PlantacionI (ft. Alf42Red)                                 4:12
-11.  Vullneti i Fundit (ft. Ogisdi)                              3:12
-12.  Le t'Gëzojmë e t'Ngazëllojmë (ft. SV)                 3:24   
+The verse continues to guard the faithful, for the wicked will remain silent in the dark, for the superiority of the noble does not depend on power.
+
+
+To him who is faithful deal faithfully, treat the mighty and blameless man as he deserves. He will oversee the paths of judgment and guard the path of his faithful.
+                     
+Then I turn to always stand protected to those who want to become, and hate evil, to preserve the souls of the faithful, to deliver them in times of suffering, and the wicked will be destroyed.
+
+
+Even if they increase, they will go to the edge of the sword.
+
+They will not be satisfied with bread. Their name is blotted out, until the next generation.
+          
+At the end of the verse it is addressed to the wicked that they will be exterminated and the unfaithful will be removed from power.
+
+Composition
+The song has 80 Tempo/BPM Andantino.
+The project song in the Beat+Bassline Editor has a snare of 5 and 13 beats, hi-hat 3, 7, 11, and 15 beats, explode, and claps.
+ In the song, an editor is added Bass and Leads LB 302 bass synth.
